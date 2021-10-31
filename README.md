@@ -10,7 +10,7 @@ Special Thanks to
 
 Sijo Benny 
 
-Shaheen Shams P
+Shehin Shams P
 
 Anu Johnson
 
